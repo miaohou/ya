@@ -1,4 +1,4 @@
-# ya
+# htc pages
 * http://www.htc.com/au/htc-club/
 * http://www.htc.com/mea-sa/go/u-compare/
 * https://www.htc.com/sea/campus/
